@@ -1,8 +1,5 @@
 ### Hi there 👋
 
-<!--
-**agrogur/agrogur** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 🔭 I’m currently working on changing my job title to coder.
 🌱 I’m currently learning Python and Deutsch. 
 👯 I’m looking to collaborate on some open source projects.
