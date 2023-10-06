@@ -7,7 +7,7 @@
 #### 💬 Ask me about anything.
 #### 📫 How to reach me: Twitter - @u47gur.
 #### 😄 Pronouns: I don't have any. I am no one.
-#### ⚡ Fun fact: I am a huge fan of the TV series 'How to Get Away with Murder'.
+#### ⚡ Fun fact: I am a huge fan of the TV series #HTGAWM 'How to Get Away with Murder'.
 
 #### My Skills
 
